@@ -1,2 +1,5 @@
 # Youtube
-membuat content untuk kedepannya di tahun 2020
+Membuat Content Youtube Tahun 2020
+- MENGCOVER LAGU LAGU YNG PERNAH TREN DULU
+- MEMINTA SARAN DAN KRITIK
+- MEMINTA PENDAPAT UNTUK KEDEPANNYA OLEH AUDIENS
